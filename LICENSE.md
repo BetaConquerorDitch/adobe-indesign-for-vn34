@@ -1,4 +1,4 @@
-
+secure Script for Adobe InDesign for macOS - AI upscaling and vector tools offers the most advanced Adobe InDesign for macOS script, with AI upscaling and vector tools. Ideal for
 
 
 
